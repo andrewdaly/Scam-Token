@@ -1,0 +1,2 @@
+# Scam-Token
+Joke
